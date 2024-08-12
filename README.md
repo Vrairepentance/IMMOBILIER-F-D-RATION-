@@ -4,3 +4,4 @@ ce n'est un Secret pour personnes que les investissements immobiliers ,sont stab
 Pour plus d'informations  tu peux suivre ce Tunnel 
 
 https://ocoeur2lp.systeme.io/federationgomez
+Merci 
